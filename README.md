@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...te/hacking 
 - 📫 How to reach me ...jst/text
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... irealy dont know what can i do 😂
 
 <!---
 Zee972/Zee972 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
